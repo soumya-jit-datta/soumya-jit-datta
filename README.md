@@ -1,4 +1,4 @@
-Hi, I’m Soumyajit Datta. I am currectly a student at IISER Kolkata. I work in theoretical physics.
+Hi, I’m Soumyajit Datta. I am currectly a student at IISER Kolkata. I work in particle physics phenomenology.
 
 You can reach me at 📫: soumyajit13datta@gmail.com
 
